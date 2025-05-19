@@ -1,6 +1,6 @@
 <h3>Hey, I'm just a guy, and I like to make things</h3>
 <p> On the internet, you can most often find me...</p> <a href="https://www.are.na/runa/index">here˙ ✩°˖🍵 ⋆｡˚꩜</a>
-<p> or more intimately</p>  <a href="https://omama.garden/pinboard.html">‧🫧⋆.ೃ࿔*:･here</a>
+<p> or more intimately...</p>  <a href="https://omama.garden/pinboard.html">here🫧⋆.ೃ࿔*:･</a>
 <p> For a good time, I like to go</p> <a href="https://feed.a-p.space/">here</a> <p>or maybe even</p> <a href="https://emojicombos.com/">here</a>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣀⣠⣴⣶⣷⣿⣿⣿⣿⣿⠶⢶⣤⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣀⣴⣾⣿⣽⣿⣿⣿⠉⣈⣙⣿⣿⣆⠀⠘⢿⣿⣶⣄⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
