@@ -1,5 +1,5 @@
 <h3>Hey, I'm just a guy, and I like to make things</h3>
- <p>< a href="https://www.are.na/runa/index">here</a></p>
+ < a href="https://www.are.na/runa/index">here</a>
 <p> or more intimately</p>  <a href="https://www.are.na/runa/index">here</a>
 ⠀★ ⊹⠀⠀⠀⡤⠚⠾⣐⢦⠲⣤⡀⠀⠀⠀ ★⠀⊹⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀✮⠀⡀⠀⠈⢰⣔⣄⣲⢶⢈⣍⡓⢝⠽⡢⠀✮⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
